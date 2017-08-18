@@ -1,0 +1,2 @@
+# Tourist
+ Tourist Guide is someone who shows visitors around an area, with the guide using extensive local knowledge to share the area with visitors. Tour guides are hired to help people navigate unfamiliar areas, and to make trips special, as a good tour guide sets a positive tone for a trip and shows people things they would not have discovered otherwise.  Using a tour guide while traveling can also be useful because tour guides are very knowledgeable, and they can provide facts and information which help visitors interpret and understand the places they see.
